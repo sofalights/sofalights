@@ -1,12 +1,4 @@
-Hi, I’m @sofalights
-
-I’m looking to collaborate on spike prime
-
-How to reach me: nope. unless you want to collaborate on spike prime robots, building, and coding then dm on discord: username: sofabeats
-
-Pronouns: he/him
-
-how to python aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+o/
 
 
 <!---
